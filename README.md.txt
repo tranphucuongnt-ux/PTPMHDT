@@ -1,0 +1,1 @@
+![Ảnh kết quả](ket_qua.jpg)
